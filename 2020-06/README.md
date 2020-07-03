@@ -3,3 +3,5 @@ Here is a collection of notable links from fellow streamers in the community. Fo
 - [clarkio: Important PSA - Dry Cereal vs. Wet Cereal](https://clips.twitch.tv/CallousTastyCiderMoreCowbell)
 
 - [robertables: Important PSA - SurlyDev is NOT  troll](https://clips.twitch.tv/SpineySmoothIcecreamBCouch)
+- [Jeff Blankenburg: Alexa STOP!](https://clips.twitch.tv/CrepuscularSuspiciousAsteriskFunRun)
+
