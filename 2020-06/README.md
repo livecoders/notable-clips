@@ -2,6 +2,7 @@ Here is a collection of notable links from fellow streamers in the community. Fo
 
 
 - [clarkio: Important PSA - Dry Cereal vs. Wet Cereal](https://clips.twitch.tv/CallousTastyCiderMoreCowbell)
+- [chaelcodes: Cat Snuggle Train !!!](https://clips.twitch.tv/HelplessCourteousDovePanicBasket)
 - [IlluminatedSpace: IlluminatedTab pen trick - Part One](https://clips.twitch.tv/HotOddPineappleNerfRedBlaster)
 - [IlluminatedSpace: IlluminatedTab pen trick - Part Two](https://clips.twitch.tv/FlaccidUnsightlyPrariedogAMPTropPunch)
 - [clarkio: Important PSA - Dry Cereal vs. Wet Cereal](https://clips.twitch.tv/CallousTastyCiderMor
