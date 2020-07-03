@@ -2,6 +2,10 @@ Here is a collection of notable links from fellow streamers in the community. Fo
 
 
 - [clarkio: Important PSA - Dry Cereal vs. Wet Cereal](https://clips.twitch.tv/CallousTastyCiderMoreCowbell)
+- [CSharpFritz: Proof of gravity in Unity](https://clips.twitch.tv/ConfidentDaintySalamanderFunRun)
+- [fiercekittenz's reaction to proof of gravity clip part 1](https://clips.twitch.tv/CrackyWanderingGorillaBleedPurple)
+- [fiercekittenz's reaction to proof of gravity clip part 2](https://clips.twitch.tv/ReliableAbstruseWallabyJonCarnage)
+- [CSharpFritz: That doesn't work](https://clips.twitch.tv/OilyThirstyGnatBudStar)
 - [chaelcodes: Cat Snuggle Train !!!](https://clips.twitch.tv/HelplessCourteousDovePanicBasket)
 - [IlluminatedSpace: IlluminatedTab pen trick - Part One](https://clips.twitch.tv/HotOddPineappleNerfRedBlaster)
 - [IlluminatedSpace: IlluminatedTab pen trick - Part Two](https://clips.twitch.tv/FlaccidUnsightlyPrariedogAMPTropPunch)
