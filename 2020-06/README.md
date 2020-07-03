@@ -13,3 +13,4 @@ Here is a collection of notable links from fellow streamers in the community. Fo
 - [robertables: Important PSA - SurlyDev is NOT  troll](https://clips.twitch.tv/SpineySmoothIcecreamBCouch)
 - [Jeff Blankenburg: Alexa STOP!](https://clips.twitch.tv/CrepuscularSuspiciousAsteriskFunRun)
 - [LaylaCodesIt: (high-pitch noise warning) More for the blackmail collection](https://clips.twitch.tv/SmoothObesePassionfruitUnSane)
+- [callowcreation: NaN degrees](https://www.twitch.tv/callowcreation/clip/RoundBoxyWallabyBlargNaut)
