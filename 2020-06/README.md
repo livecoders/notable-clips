@@ -1,5 +1,6 @@
 Here is a collection of notable links from fellow streamers in the community. For this first folder since it's the start of this whole thing feel free to add any clips that are from June 2020.
 
+- [clarkio: Important PSA - Dry Cereal vs. Wet Cereal](https://clips.twitch.tv/CallousTastyCiderMoreCowbell)
 - [clarkio: Important PSA - Dry Cereal vs. Wet Cereal](https://clips.twitch.tv/CallousTastyCiderMoreCowbell
 - [CSharpFritz: Proof of gravity in Unity](https://clips.twitch.tv/ConfidentDaintySalamanderFunRun)
 - [fiercekittenz's reaction to proof of gravity clip part 1](https://clips.twitch.tv/CrackyWanderingGorillaBleedPurple)
