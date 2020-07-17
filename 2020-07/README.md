@@ -1,4 +1,4 @@
-Here is a collection of notable links from fellow streamers in the community. For this first folder since it's the start of this whole thing feel free to add any clips that are from July 2020.
+Here is a collection of notable links from fellow streamers in the community. Feel free to add any clips that are from July 2020.
 
 - [SiliconOrchid and LaylaCodesIt - DestructoPup shows why her name is so appropriate](https://clips.twitch.tv/GleamingViscousToothCorgiDerp)
 
