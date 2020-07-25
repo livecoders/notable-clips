@@ -7,3 +7,5 @@ Here is a collection of notable links from fellow streamers in the community. Fe
 - [baldbeardedbuilder - Nate makes a very short visit to the stream](https://www.twitch.tv/baldbeardedbuilder/clip/DeadSavoryWombatDansGame)
 
 - [SadMoody. - Bird sound effect](https://clips.twitch.tv/RespectfulPoliteManateeCopyThis)
+
+- [ObsidianTalon - Clarkio cares!](https://clips.twitch.tv/BillowingSmoothDragonDeIlluminati)
