@@ -12,3 +12,4 @@ Here is a collection of notable links from fellow streamers in the community. Fe
 - [Clarkio, Knock Knock Knock](https://clips.twitch.tv/FairInspiringPterodactylArgieB8)
 - [Jeff Fritz - Don't cut that with...](https://www.twitch.tv/csharpfritz/clip/CrispySullenElkOneHand)
 - [Clarkio - Oh god, what ever that was... it can't be right!](https://clips.twitch.tv/RespectfulCleanHorseradishFeelsBadMan)
+- [I'll just leave this here 🤣](https://clips.twitch.tv/SmellySullenBadgerTakeNRG)
