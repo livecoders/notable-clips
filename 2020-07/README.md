@@ -10,3 +10,5 @@ Here is a collection of notable links from fellow streamers in the community. Fe
 - [Jeff Fritz likes big...](https://clips.twitch.tv/AthleticWimpyDaikonVoteNay)
 - [Corey Hurricane wants to build a snowman](https://clips.twitch.tv/HardEntertainingGarlicBibleThump)
 - [Clarkio, Knock Knock Knock](https://clips.twitch.tv/FairInspiringPterodactylArgieB8)
+- [Jeff Fritz - Don't cut that with...](https://www.twitch.tv/csharpfritz/clip/CrispySullenElkOneHand)
+- [Clarkio - Oh god, what ever that was... it can't be right!](https://clips.twitch.tv/RespectfulCleanHorseradishFeelsBadMan)
