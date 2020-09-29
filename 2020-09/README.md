@@ -6,3 +6,4 @@ Here is a collection of notable links from fellow streamers in the community. Fe
 - [BaldBeardedBuilder - I would never kill a bird...](https://www.twitch.tv/vonagedevs/clip/HungryJollyRamenEagleEye)
 - [BaldBeardedBuilder - Let It Go... no.](https://www.twitch.tv/baldbeardedbuilder/clip/DifficultSpikyTriangleDatSheffy)
 - [ThatsRadBot serves up the memes](https://clips.twitch.tv/PrettyAnimatedCheetahCeilingCat)
+- [SadMoody - That's gonna get clipped](https://clips.twitch.tv/ImpartialDeafKumquatJebaited)
