@@ -8,3 +8,6 @@ Here is a collection of notable links from fellow streamers in the community. Fe
 - [ThatsRadBot serves up the memes](https://clips.twitch.tv/PrettyAnimatedCheetahCeilingCat)
 - [SadMoody - That's gonna get clipped](https://clips.twitch.tv/ImpartialDeafKumquatJebaited)
 - [FrankKrueger - Porting Fuget.org to Blazor and it's starting to work!](https://clips.twitch.tv/AntsyShortCoffeeBibleThump)
+- [BaldBeardedBuilder - BackPack Buddies Goal / Blazor Week](https://clips.twitch.tv/ZealousEncouragingLouseEleGiggle)
+- [BaldBeardedBuilder - Goal Met, Blazor Week here we come !](https://clips.twitch.tv/EndearingBlindingParrotTF2John)
+- [Clarkio - Winning (code) by voice](https://clips.twitch.tv/PoliteFantasticClipsdadTwitchRPG)
