@@ -11,3 +11,4 @@ Here is a collection of notable links from fellow streamers in the community. Fe
 - [BaldBeardedBuilder - BackPack Buddies Goal / Blazor Week](https://clips.twitch.tv/ZealousEncouragingLouseEleGiggle)
 - [BaldBeardedBuilder - Goal Met, Blazor Week here we come !](https://clips.twitch.tv/EndearingBlindingParrotTF2John)
 - [Clarkio - Winning (code) by voice](https://clips.twitch.tv/PoliteFantasticClipsdadTwitchRPG)
+- [FierceKittenz - How Blazor will succeed (NSFW)](https://www.twitch.tv/fiercekittenz/clip/EsteemedStrangeWaspAllenHuhu)
