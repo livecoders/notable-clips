@@ -4,3 +4,4 @@ Here is a collection of notable links from fellow streamers in the community. Fe
 - [BaldBeardedBuilder needs a minute](https://clips.twitch.tv/WealthyStupidBobaGOWSkull)
 - [BaldBeardedBuilder - catch you on the flippity flop](https://clips.twitch.tv/PlausibleSquareSamosaHumbleLife)
 - [SurlyDev dropping a bot army on FBoucheros](https://clips.twitch.tv/ObliqueMoistPuppyDatBoi)
+- [Legit - How to time a Twitch bot sound command](https://clips.twitch.tv/EsteemedDeafHorseMVGame)
