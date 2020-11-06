@@ -2,5 +2,5 @@ Here is a collection of notable links from fellow streamers in the community. Fe
 
 - [Okay, Toot! I dunno if you heard, but it happened.](https://clips.twitch.tv/DrabFilthyRamenOSsloth)
 - [BaldBeardedBuilder needs a minute](https://clips.twitch.tv/WealthyStupidBobaGOWSkull)
-- [BaldBeardedBuild - catch you on the flippity flop](https://clips.twitch.tv/PlausibleSquareSamosaHumbleLife)
+- [BaldBeardedBuilder - catch you on the flippity flop](https://clips.twitch.tv/PlausibleSquareSamosaHumbleLife)
 - [SurlyDev dropping a bot army on FBoucheros](https://clips.twitch.tv/ObliqueMoistPuppyDatBoi)
