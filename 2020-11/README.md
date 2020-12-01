@@ -9,3 +9,6 @@ Here is a collection of notable links from fellow streamers in the community. Fe
 - [cldubya: Thankful for the clips](https://clips.twitch.tv/DarlingAttractiveSpiderKevinTurtle)
 - [cldubya: I said someone should clip that ...](https://clips.twitch.tv/ElatedTrustworthyLardKreygasm)
 - [cldubya: I'm gonna get in trouble, so don't clip this](https://clips.twitch.tv/EnergeticDreamySpiderHotPokket)
+- [clarkio: clap pickle clap pickle clap pickle clap pickle clap pickle clap pickle clap pickle clap pickle](https://www.twitch.tv/clarkio/clip/RepleteTalentedOrcaFunRun)
+- [clarkio: Hess truck jingle](https://www.twitch.tv/clarkio/clip/PopularTolerantCucumberFeelsBadMan)
+- [clarkio: snap, crackle, pop](https://www.twitch.tv/clarkio/clip/TsundereHealthyJalapenoMikeHogu)
