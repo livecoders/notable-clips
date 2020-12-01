@@ -12,3 +12,8 @@ Here is a collection of notable links from fellow streamers in the community. Fe
 - [clarkio: clap pickle clap pickle clap pickle clap pickle clap pickle clap pickle clap pickle clap pickle](https://www.twitch.tv/clarkio/clip/RepleteTalentedOrcaFunRun)
 - [clarkio: Hess truck jingle](https://www.twitch.tv/clarkio/clip/PopularTolerantCucumberFeelsBadMan)
 - [clarkio: snap, crackle, pop](https://www.twitch.tv/clarkio/clip/TsundereHealthyJalapenoMikeHogu)
+- [LaylaCodesIt: Big budget production - Elvis lives !](https://www.twitch.tv/laylacodesit/clip/DependableGloriousAntelopePhilosoraptor)
+- [LaylaCodesIt: Clarkio your little farts](https://www.twitch.tv/laylacodesit/clip/ProudCuriousWolfPeanutButterJellyTime)
+- [LaylacodesIt: You never saw that!](https://www.twitch.tv/laylacodesit/clip/FreezingCloudyCheeseStrawBeary)
+- [LaylaCodesIt: I'm gonna get in trouble, so don't clip this](https://clips.twitch.tv/EnergeticDreamySpiderHotPokket)
+- [LaylaCodesIt: What are my presents doing in the graveyard?](https://www.twitch.tv/laylacodesit/clip/ShinyScaryDillHassanChop)
