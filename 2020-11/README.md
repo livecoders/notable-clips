@@ -2,3 +2,6 @@ Here is a collection of notable links from fellow streamers in the community. Fe
 
 - [cldubya: When you get two leafs of lettuce with your meal](https://clips.twitch.tv/ImportantEagerGalagoFailFish)
 - [name of clip](link)
+- [cldubya: Thankful for the clips](https://clips.twitch.tv/DarlingAttractiveSpiderKevinTurtle)
+- [cldubya: I said someone should clip that ...](https://clips.twitch.tv/ElatedTrustworthyLardKreygasm)
+- [cldubya: I'm gonna get in trouble, so don't clip this](https://clips.twitch.tv/EnergeticDreamySpiderHotPokket)
